@@ -31,3 +31,6 @@ may be helpful. Hoping that the three pieces together on a raft will be
 more stable and less likely to fall over. Given how well the headjoint
 did in a very unstable upright position (I can't balance the thing on
 the table on its small end) I bet this will be fine...
+
+
+okay...  that didn't work...  just trying the second segment on its own!
